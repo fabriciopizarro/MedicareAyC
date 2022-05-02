@@ -1,1 +1,1 @@
-Centro medico Medicare A&C# MedicareAyC
+Centro medico Medicare A&C
